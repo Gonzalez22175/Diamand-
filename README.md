@@ -1,0 +1,2 @@
+# Diamand-
+Nicht investieren
